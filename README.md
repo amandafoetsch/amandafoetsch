@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-![](https://media1.tenor.com/m/wGOHcanZgCgAAAAC/memes-feliz-noche.gif)
+![](https://media.tenor.com/ORDwj53T0G0AAAAi/peach-and-goma-cute.gif)
 
 <!--
 **amandafoetsch/amandafoetsch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
