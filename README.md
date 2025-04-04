@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+![](https://tenor.com/pt-BR/view/memes-feliz-noche-si-meme-gato-gif-13863073000227176488 )
+
 <!--
 **amandafoetsch/amandafoetsch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
